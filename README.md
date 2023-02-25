@@ -20,7 +20,7 @@
 
     <summary><b> Support</b></summary><br/>
 
- <a href="https://t.me/CatzBurry"> Telegram</a>
+ <a href="https://wa.me/6287840353166"> Telegram</a>
 
 </p>
 
